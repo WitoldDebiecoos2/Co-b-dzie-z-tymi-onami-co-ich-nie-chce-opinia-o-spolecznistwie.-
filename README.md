@@ -1,0 +1,1 @@
+# Co-b-dzie-z-tymi-onami-co-ich-nie-chce-opinia-o-spolecznistwie.-
